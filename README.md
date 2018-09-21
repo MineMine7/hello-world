@@ -1,6 +1,6 @@
 ＃ 你好，世界
-你站在桥上看风景
-看风景的人在楼上看你
-明月装饰了你的窗子
-你装饰了别人的梦
-＃断章
+MineMine7
+MineMine7
+MineMine7
+MineMine7
+MineMine7
